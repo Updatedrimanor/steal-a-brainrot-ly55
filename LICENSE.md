@@ -1,4 +1,4 @@
-#  
+#  steal a brainrot Scripts stealth offers the most advanced steal a brainrot Script, with silent aim and auto-upgrade. Perfect for dominating any match.
 
 
 
